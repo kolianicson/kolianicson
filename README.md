@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kolianicson
+662- 👋 Hi, I’m @kolianicson
 - 👀 I’m interested in ...5623
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ury
