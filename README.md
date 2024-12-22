@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...ury
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...66
+- ⚡ Fun fact: ...665
 5
 <!---2sfd
 kolianicson/kolianicson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
